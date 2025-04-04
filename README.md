@@ -3,7 +3,7 @@
                                    he it        
                             ⋆˚꩜｡.𖥔 ݁ ˖── .✦~(𐂯) 
                                     𓌉◯𓇋.  im will graham ꕀ⊂⊃
-![image](https://github.com/user-attachments/assets/0ce15963-99b0-4a14-a7b4-f5d922bdbd73) 
+
 
 
                                         
