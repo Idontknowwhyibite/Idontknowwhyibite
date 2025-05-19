@@ -1,4 +1,5 @@
-
+c links prns page:
+dave strider: https://en.pronouns.page/@dave.striderr
 
 
 
