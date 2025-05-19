@@ -1,6 +1,9 @@
 c links prns page:
-dave strider: https://en.pronouns.page/@dave.striderr
-will graham: https://en.pronouns.page/@will.grahamm (wip!!!!)
+
+                 dave strider: https://en.pronouns.page/@dave.striderr
+
+
+       will graham: https://en.pronouns.page/@will.grahamm (wip!!!!)
 
 
 
