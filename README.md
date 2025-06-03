@@ -1,4 +1,8 @@
-![IMG_2591](https://github.com/user-attachments/assets/0f065ed5-7c53-4235-add9-fe8fb9341f15) 
+                        JUMPSCARES ! 
+
+ 
+ ![IMG_2635](https://github.com/user-attachments/assets/be6ad230-465b-4aa0-9876-0917113eca08)
+
 
 
 
