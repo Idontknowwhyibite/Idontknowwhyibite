@@ -21,6 +21,13 @@ https://docs.google.com/document/d/10ASZjSxxXY4I3TRZTmI1YT7hasR68obxvFo6-nJ9lrM/
 ![IMG_0209](https://github.com/user-attachments/assets/e79c8e1d-bbd2-4050-84b6-8597bdb5002a)
 ![IMG_0207](https://github.com/user-attachments/assets/96d401be-87c8-4ce5-84ee-7a29043df37d)
 ![IMG_0204](https://github.com/user-attachments/assets/75fc3b82-101a-49b4-ada1-35036d26ef4d)
+![IMG_0240](https://github.com/user-attachments/assets/e3981115-35b0-4fc8-a57e-64f47fa98bf8)
+![IMG_0235](https://github.com/user-attachments/assets/a7e13f8f-8682-424b-a641-42751e72bf3a)
+![IMG_0234](https://github.com/user-attachments/assets/3e617bd7-ac72-4191-b7b1-742641d5ffed)
+![IMG_0233](https://github.com/user-attachments/assets/736ef326-fac5-4573-a460-ca522fd74b00)
+![IMG_0232](https://github.com/user-attachments/assets/d49d0980-e27d-43e7-b5d5-86e53b61d000)
+![IMG_0225](https://github.com/user-attachments/assets/599186cc-a2dd-48d1-bd75-691869863071)
+![IMG_0222](https://github.com/user-attachments/assets/0ecf5ae9-ad22-44b9-8954-6fed2b8ef382)
 
  
 
@@ -42,3 +49,11 @@ https://docs.google.com/document/d/10ASZjSxxXY4I3TRZTmI1YT7hasR68obxvFo6-nJ9lrM/
 <img width="99" height="56" alt="IMG_0206" src="https://github.com/user-attachments/assets/51e9fac3-3bf7-4267-8eea-fef69671744c" />
 <img width="99" height="56" alt="IMG_0205" src="https://github.com/user-attachments/assets/fce02e77-646c-4220-84b7-e99b845cf436" />
 ![IMG_0213](https://github.com/user-attachments/assets/fce1c68d-37ca-4671-bbdc-acaebd6c4989)
+![IMG_0242](https://github.com/user-attachments/assets/5d2e271d-cc96-4cec-8b6e-cc71daa152d3)
+<img width="99" height="55" alt="IMG_0241" src="https://github.com/user-attachments/assets/da07a70e-4e15-46f9-a953-5f730cef8ea3" />
+<img width="99" height="56" alt="IMG_0237" src="https://github.com/user-attachments/assets/b497417b-1d7f-4266-b342-bf7fe0479a6e" />
+![IMG_0231](https://github.com/user-attachments/assets/b8e4eeaa-a789-4b1f-ae18-915c6635af16)
+![IMG_0230](https://github.com/user-attachments/assets/3c8b0b80-0d0b-46f6-a114-c664fda07747)
+<img width="99" height="55" alt="IMG_0227" src="https://github.com/user-attachments/assets/5e8f6a14-6f11-495a-a477-eee330f36bab" />
+<img width="99" height="57" alt="IMG_0228" src="https://github.com/user-attachments/assets/257545c8-a3a7-4536-a892-863428711a5a" />
+<img width="99" height="57" alt="IMG_0229" src="https://github.com/user-attachments/assets/b58b60b7-9cd9-41dd-9aa3-6b4ec91c5cfa" />
