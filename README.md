@@ -1,4 +1,4 @@
-pWE ARE CURRENTLY LOOKING FOR FRIENDS , YES ! DONT BE AFRAID TO COME UP TO US IN PT OR CONTACT US ON DISC 
+WE ARE CURRENTLY LOOKING FOR FRIENDS , YES ! DONT BE AFRAID TO COME UP TO US IN PT OR CONTACT US ON DISC 
 
 WIP!!!
 ![IMG_0221](https://github.com/user-attachments/assets/89d14624-6d6c-461a-98e1-24fc972aa9ea)
@@ -39,6 +39,9 @@ https://docs.google.com/document/d/10ASZjSxxXY4I3TRZTmI1YT7hasR68obxvFo6-nJ9lrM/
 ![IMG_0244](https://github.com/user-attachments/assets/befdfc58-0b62-4724-aef2-1ff7125f0569)
 ![IMG_0245](https://github.com/user-attachments/assets/9554b248-5dc8-45ab-965a-39497d2a7c03)
 ![IMG_0243](https://github.com/user-attachments/assets/ca5efef4-8a98-448e-83c6-95b02f3ca955)
+![IMG_0257](https://github.com/user-attachments/assets/dcc4a3e3-3541-4afa-a5db-ceed9f4d69e7)
+![IMG_0258](https://github.com/user-attachments/assets/72a20f95-6ba3-40b9-b6d3-2ee48d492b35)
+![IMG_0259](https://github.com/user-attachments/assets/c91071e4-c7a4-4b9c-b539-7d664731f421)
 
  
 
@@ -93,7 +96,7 @@ https://docs.google.com/document/d/10ASZjSxxXY4I3TRZTmI1YT7hasR68obxvFo6-nJ9lrM/
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9c22c304-d0bc-4eb8-95e8-2543b811b5b8" />
 <img width="99" height="56" alt="IMG_0254" src="https://github.com/user-attachments/assets/f6151c8f-1a2f-4ce0-af7d-290bd14267e3" />
 ![IMG_0255](https://github.com/user-attachments/assets/12f2d823-818e-4b55-ae01-e36cd8b0d2fb)
-
+<img width="99" height="56" alt="IMG_0256" src="https://github.com/user-attachments/assets/71e8c1ae-8dce-4e46-b9e7-2f00808b06fb" />
 
 
 
