@@ -26,7 +26,6 @@ https://docs.google.com/document/d/10ASZjSxxXY4I3TRZTmI1YT7hasR68obxvFo6-nJ9lrM/
 ![IMG_0234](https://github.com/user-attachments/assets/3e617bd7-ac72-4191-b7b1-742641d5ffed)
 ![IMG_0233](https://github.com/user-attachments/assets/736ef326-fac5-4573-a460-ca522fd74b00)
 ![IMG_0232](https://github.com/user-attachments/assets/d49d0980-e27d-43e7-b5d5-86e53b61d000)
-![IMG_0225](https://github.com/user-attachments/assets/599186cc-a2dd-48d1-bd75-691869863071)
 ![IMG_0222](https://github.com/user-attachments/assets/0ecf5ae9-ad22-44b9-8954-6fed2b8ef382)
 
  
